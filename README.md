@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @wKoopa
+- 👀 I’m interested in videos games and coding
+- 🌱 I’m currently learning coding with python
+- 📫 How to reach me: add me on discord: Koopa#7675
